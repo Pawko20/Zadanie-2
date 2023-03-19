@@ -1,1 +1,0 @@
-# econtacts-zadania-z-poradnika
